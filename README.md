@@ -3,6 +3,8 @@
 - [x] pontual
 - [ ] extrovertida
 
+---
+
 ☺ Oie, sou a Gabi, prazer!! :)
 
 💻 Iniciando programação
