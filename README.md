@@ -5,6 +5,8 @@
 
 ---
 
+**Vou ficar doida** 
+
 ☺ Oie, sou a Gabi, prazer!! :)
 
 💻 Iniciando programação
